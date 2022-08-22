@@ -1,0 +1,1 @@
+rich head, better future
