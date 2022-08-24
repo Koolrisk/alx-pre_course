@@ -1,1 +1,1 @@
-Joycee Dennis, Richmond, Destine, Anthonitta and Amy
+Joycee, Dennis, Richmond, Destine, Anthonitta and Amy
